@@ -1,1 +1,0 @@
-# studik-s.github.io
